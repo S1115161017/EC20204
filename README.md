@@ -12,4 +12,5 @@
 ![5555555](https://github.com/S1115161017/EC20204/assets/162283644/0f3c8e9b-f4a3-44a6-8b44-8add4d073d4f)
 ![11111](https://github.com/S1115161017/EC20204/assets/162283644/2384a25e-4411-43fa-b825-b3fab59a9150)
 ![00](https://github.com/S1115161017/EC20204/assets/162283644/42536d38-68a9-46b6-8edb-67c9b63b1a6f)
-![Uploading 01.jpg…]()
+
+![01](https://github.com/S1115161017/EC20204/assets/162283644/2a8a028e-5371-4ae2-9452-d28f91fe239f)
